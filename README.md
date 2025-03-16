@@ -31,6 +31,3 @@ Cursando ensino médio e técnico no Polivalente de Americana, no curso de desen
 ### Email ✉️
 chikamirafael@gmail.com
 
-<hr>
-
-"Como é feliz o homem que acha a sabedoria, o homem que obtém entendimento."
